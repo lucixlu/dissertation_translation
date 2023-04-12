@@ -1,5 +1,5 @@
 1. Basic questions
- - Are you currently renting your land? How many acres are you renting? How many parcels of land do you have in total?
+* Are you currently renting your land? How many acres are you renting? How many parcels of land do you have in total?
 * Is it rented from one family? What is your relationship with the owner? Are you renting from a relative? Or did you rent from an acquaintance/neighbor?
 * From an acquaintance/neighbor?
 * Is there any land that you are allowed to rent from the brigade? If so, are there any rules? How did you draw lots?
