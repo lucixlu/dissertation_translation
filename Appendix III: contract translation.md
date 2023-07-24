@@ -15,6 +15,7 @@ Tel:
 
 In order to regulate the grassland contract management rights transfer behavior, and safeguard the legitimate rights and interests of the parties involved in the transfer, according to the "The People's Republic of China Grassland Law", "Contract Law of the People's Republic of China", "Inner Mongolia Autonomous Region Grassland Management Regulations", "Inner Mongolia Autonomous Region Grassland Management Regulations Implementation Rules", "East Urumqi Grassland Contract Management Rights Transfer Management Measures" and other relevant laws and regulations, in the spirit of voluntary, equal, negotiated, paid, the lessor is willing to lease the following grassland contract management rights to lessee. By mutual consensus, we hereby conclude this contract and jointly comply with its implementation.  
 
+
 **I. Basic information of leased pasture** 
 
 The leased rangeland is located in ________________________________ sumu (town) __________________ gacha. The rangeland certificate registrant is __________________. The rangeland owned by the registrant is _____________ mu, and the amount leased to the lessee is __________________________ mu. The livestock carrying capacity is ______________ sheep unit. The coordinates of this specific location is: __________________________________________________
@@ -23,6 +24,7 @@ The leased rangeland is located in ________________________________ sumu (town) 
 **II. Lease term, lease area, rent and payment method**
 
 The lease term starts from ______ to ______. The leased area is _______mu, including ______mu of grazing land, ________mu of hay harvesting, and _________mu of planted land. The rent for the leased pasture is __________yuan/mu/year, and the total amount of rent is _______yuan (capital in Chinese: __________). Rent payment method: ___________. 
+
 
 **III, The rights and obligations of lessor and lessee**
 (A) Lessor's rights and obligations
@@ -45,18 +47,17 @@ The lease term starts from ______ to ______. The leased area is _______mu, inclu
 8. The lessee enjoys the rights and obligations stipulated by laws and regulations.
 
 
-**IV, both parties are responsible for breach of contract**
-1. No party shall change or cancel the contract during its execution. If a party violates the contract should be in accordance with this contract and the relevant laws and regulations, bear the responsibility to pay liquidated damages to the other party, the loss caused by the breach of contract to the other party should pay compensation, and continue to perform the contract. 
-2. party B in the lease grass pasture during the lease pasture due to poor management, overload overgrazing and other reasons caused by the decline in productivity of grass pasture, pasture grade reduction, should take positive measures to restore remedy and compensation for the losses caused; such as predatory management, reclamation, leased grassland again for unauthorized transfer, thus causing serious damage to the leased pasture, in addition to should be dealt with according to the law, should be Party A corresponding compensation In addition, the lease contract shall be terminated at the same time. The leased pasture shall not cause the grade of the transferred pasture to decline or cause permanent damage.
+**IV, the responsibility for both parties for breaching the contract**
+1. No party shall change or cancel the contract during its execution. If a party violates the contract, they should be in accordance with this contract and the relevant laws and regulations, bear the responsibility to pay liquidated damages to the other party, as well as pay compensation for the loss caused by the breach of contract to the other party, and continue to perform the contract. 
+2. If the lessee causes a decline in the productivity of rangeland due to poor management or overgrazing, they should take measures to restore and compensate for the losses caused. The lessee should compensate the lessor if they caused severe damage to the leased rangeland through exploitative grazing, land reclamation, and undergoing unauthorized sub-lease. Additionally, the lease contract shall be terminated at the same time. The leased pasture shall not cause the grade of the transferred pasture to decline or cause permanent damage.
 
 
 **V. Exemption conditions** 
-When the contract cannot be performed due to force majeure factors, both parties shall bear mutual responsibility and the losses caused shall be borne by both parties.
+When the contract cannot be performed due to force majeure events, both parties shall bear mutual responsibility, and the losses caused shall be borne by both parties.
 
 
-**VI. Dispute Resolution **
-If disputes over the boundaries of grass pastures occur within the leased grass pastures, Party A shall be responsible for coordinating and resolving them. In the process of contract implementation
-Other disputes shall be resolved through consultation on an equal footing, and if the consultation fails, we may apply for coordination and resolution with relevant departments, or we may apply for arbitration or file a lawsuit with the people's
+**VI. Dispute Resolution**
+If disputes over the boundaries of grass pastures occur within the leased rangeland, the lessor shall be responsible for coordinating and resolving them. In the process of contract implementation, other disputes shall be resolved through consultation on an equal footing, and if the consultation fails, we may apply for coordination and resolution with relevant departments, or we may apply for arbitration or file a lawsuit with the people's
 The court may also apply for arbitration or file a lawsuit.
  
 
