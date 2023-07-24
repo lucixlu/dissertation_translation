@@ -52,17 +52,15 @@ The lease term starts from ______ to ______. The leased area is _______mu, inclu
 2. If the lessee causes a decline in the productivity of rangeland due to poor management or overgrazing, they should take measures to restore and compensate for the losses caused. The lessee should compensate the lessor if they caused severe damage to the leased rangeland through exploitative grazing, land reclamation, and undergoing unauthorized sub-lease. Additionally, the lease contract shall be terminated at the same time. The leased pasture shall not cause the grade of the transferred pasture to decline or cause permanent damage.
 
 
-**V. Exemption conditions** 
+**V. Exemption conditions**   
 When the contract cannot be performed due to force majeure events, both parties shall bear mutual responsibility, and the losses caused shall be borne by both parties.
 
 
-**VI. Dispute Resolution**
-
-
+**VI. Dispute Resolution**  
 If disputes over the boundaries of grass pastures occur within the leased rangeland, the lessor shall be responsible for coordinating and resolving them. In the process of contract implementation, other disputes shall be resolved through consultation of both the lessee and the lessor, and if the consultation fails, both must apply for coordination and resolution with relevant government departments, or may apply for arbitration or file a lawsuit with the court. 
  
 
-**VII. Other matters**
+**VII. Other matters**  
 1. Both parties should negotiate to solve the utilization and management of the existing infrastructure and new infrastructure of the transferred grassland. 
 2. This contract transfer of pastureland boundaries, area, grading, and plot must be consistent with the grassland contract management rights certificate and grassland contract data and content listed. 
 3. This contract must be signed by the legal representatives of the lessor and lessee, as well as reviewed, sealed, and recorded by their gacha committee and sumu (town) grassland ecological protection law, and banner ecological protection bureau. 
@@ -73,13 +71,12 @@ If disputes over the boundaries of grass pastures occur within the leased rangel
 2. If there is additional matters, the lessor and lessee should sign a supplementary contract after negotiation. 
 3. A copy of the grassland tenure certificate, and a copy of the ID cards of both the lessor and lessee should be attached to the contract.
 
-Supplementary terms negotiated between the lessor and lessee: __________________________________________
-________________________________________________________________ 
-________________________________________________________________ 
-Party A (Lessor) (signature) ___________________
-Party B (lessee) (signature) ___________________ 
-Gacha Committee evaluation (seal) ____________________________________________ 
-Soum (town) ecological protection enforcement team evaluation (signature) ____________________________ 
-East Ujimqin Ecological Protection Bureau evaluation (seal) ____________________
+Supplementary terms negotiated between the lessor and lessee: ______________________________________________________________________  
+
+Party A (Lessor) (signature) ___________________    
+Party B (lessee) (signature) ___________________     
+Gacha Committee evaluation (seal) ____________________________________________    
+Soum (town) ecological protection enforcement team evaluation (signature) ____________________________    
+East Ujimqin Ecological Protection Bureau evaluation (seal) ____________________    
 
 modeified based on DeepL auto translation www.DeepL.com/Translator 
