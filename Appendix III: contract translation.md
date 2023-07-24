@@ -21,14 +21,18 @@ The leased rangeland is located in ________________________________ sumu (town) 
 
 
 **II. Lease term, lease area, rent and payment method**
-The lease term is _______, from ____ to _____. The leased area is ___________ mu; including _________ mu of grazing land, _________ mu of pasture, and ____________ mu of artificial grass. The rent of the leased pasture is _________ yuan/mu per year, and the amount of rent is __________ yuan (capital: _____________). Rent payment method:________________________________________
 
+The lease term starts from ______ to ______. The leased area is _______mu, including ______mu of grazing land, ________mu of hay harvesting, and _________mu of planted land. The rent for the leased pasture is __________yuan/mu/year, and the total amount of rent is _______yuan (capital in Chinese: __________). Rent payment method: ___________. 
 
-**III, the rights and obligations of both parties**
-(A) Party A rights and obligations
-1, enjoy the right to transfer grassland contract management rights according to law.
-2, on time to collect the agreed lease price from Party B. 3、Supervise Party B to reasonably use and protect the grassland, and stop Party B from damaging the grassland and other ecological resources of the grassland. In accordance with the relevant grassland laws and regulations, supervise Party B to raise livestock in accordance with the appropriate livestock load approved by the ecological protection department, and stop the overloading of livestock and theft of livestock during the period of grazing ban and rest, and report to the relevant departments in a timely manner. 4. Maintain the legal livestock production and operation autonomy of Party B. Do not interfere with the normal livestock production and operation activities of Party B according to the law. Do not illegally change or cancel the transfer contract. 5、Enjoy the corresponding compensation when the grassland is requisitioned and occupied according to the law. 6, shall keep the grassland contract management right certificate and grass pasture contract.
-7、Other rights and obligations stipulated by laws and regulations.
+**III, The rights and obligations of lessor and lessee**
+(A) Lessor's rights and obligations
+1. enjoy the right to transfer grassland contract management rights according to law.   
+2. collect the agreed rental from the lessee on time.    
+3. Supervise the lessee to reasonably use and protect the grassland, and stop lessee from exploiting the grassland and other ecological resources of the grassland. In accordance with the relevant grassland laws and regulations, supervise the lessee to raise livestock in accordance with the appropriate livestock load approved by the ecological protection department, and stop the overstocking and grazing during the period of grazing ban, and report to the relevant departments in a timely manner.    
+4. Maintain the legal livestock production and operation autonomy of the lessee. Do not interfere with the normal livestock production and operation activities of the lessee according to the law. Do not illegally change or terminate the transfer contract.   
+5. Receive the corresponding compensation when the grassland is requisitioned and occupied according to the law.
+6. shall possess the grassland contract management right certificate and grass pasture contract.
+7. shall enjoy the other rights and obligations stipulated by laws and regulations.
 
 (2) Party B's rights and obligations
 1.Enjoy the right to operate livestock production and benefits from the leased pasture according to law, and have the illegal right to organize, produce, operate and dispose of products independently.
