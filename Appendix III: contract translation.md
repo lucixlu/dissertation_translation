@@ -1,6 +1,6 @@
 **East Urumqi grassland contract management rights lease contract**
 
-lessor: ____________________________________________________ 
+lessor:  
 ID number: ________________________________________________________ 
 Residence address:__________________________________________________________ 
 Address of the contract issuer: __________________ 
