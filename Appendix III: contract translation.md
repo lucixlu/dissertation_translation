@@ -1,8 +1,8 @@
 **East Urumqi grassland contract management rights lease contract**
 
 lessor:  
-ID number: ________________________________________________________ 
-Residence address:__________________________________________________________ 
+ID number: 
+Residence address:
 Address of the contract issuer: __________________ 
 Sumu (town): ________________________ 
 Gacha: ________________________ 
