@@ -26,23 +26,23 @@ The lease term starts from ______ to ______. The leased area is _______mu, inclu
 
 **III, The rights and obligations of lessor and lessee**
 (A) Lessor's rights and obligations
-1. enjoy the right to transfer grassland contract management rights according to law.   
-2. collect the agreed rental from the lessee on time.    
-3. Supervise the lessee to reasonably use and protect the grassland, and stop lessee from exploiting the grassland and other ecological resources of the grassland. In accordance with the relevant grassland laws and regulations, supervise the lessee to raise livestock in accordance with the appropriate livestock load approved by the ecological protection department, and stop the overstocking and grazing during the period of grazing ban, and report to the relevant departments in a timely manner.    
-4. Maintain the legal livestock production and operation autonomy of the lessee. Do not interfere with the normal livestock production and operation activities of the lessee according to the law. Do not illegally change or terminate the transfer contract.   
+1. Enjoy the right to transfer grassland contract management rights according to law.   
+2. Collect the agreed rental from the lessee on time.    
+3. Supervise the lessee to reasonably use and protect the grassland, and stop the lessee from exploiting the grassland and other ecological resources of the grassland. In accordance with the relevant grassland laws and regulations, supervise the lessee to raise livestock in accordance with the appropriate livestock load approved by the ecological protection department, and stop the overstocking and grazing during the period of grazing ban, and report to the relevant departments in a timely manner.    
+4. Maintain the legal livestock production and operation autonomy of the lessee. Do not interfere with the daily livestock production and operation activities of the lessee according to the law. Do not illegally change or terminate the transfer contract.   
 5. Receive the corresponding compensation when the grassland is requisitioned and occupied according to the law.
-6. shall possess the grassland contract management right certificate and grass pasture contract.
-7. shall enjoy the other rights and obligations stipulated by laws and regulations.
+6. Shall possess the grassland contract management right certificate and grass pasture contract.
+7. Shall enjoy the other rights and obligations stipulated by laws and regulations.
 
-(2) Party B's rights and obligations
-1.Enjoy the right to operate livestock production and benefits from the leased pasture according to law, and have the illegal right to organize, produce, operate and dispose of products independently.
-2.Deliver the agreed lease price to Party A on time. 
-3. according to the law to protect and reasonable use of grassland, shall not change the use of grass pasture, 
-4. Party B in the lease of grassland livestock, must comply with the relevant laws and regulations of the grassland, in strict accordance with the grass storage balance of livestock, in strict accordance with the relevant regulations of the management of the grass field mowing operation, shall not overload overgrazing, reclamation of grassland, indiscriminate digging of wild plants, carnation hunting, construction of permanent buildings other than animal husbandry. 
-5. grassland leasing period, Party B will be leased grassland for re-transfer, must obtain Party A written consent. 
-6. When the grassland lease expires, return the leased grassland to Party A in time or negotiate to continue the lease. Party B enjoys the right of priority in lease under the same conditions. 
-7. If the leased grassland is expropriated or occupied in whole or in part according to law and the contract cannot be continued, Party B shall be paid the lease fee for the whole or part of the grassland that cannot be used continuously.
-8.Other rights and obligations stipulated by laws and regulations.
+(2) The lessee's rights and obligations
+1. Enjoy the right to operate livestock production and benefits from the leased pasture according to law, and have the legal right to organize, produce, operate, and dispose of products independently.
+2. Deliver the agreed lease rental to the lessor on time. 
+3. According to the law to protect and reasonable use of grassland, the lessee shall not change the use of grass pasture. 
+4. Lessee must comply with the relevant laws and regulations of the grassland, in strict accordance with the grass storage balance of livestock, in strict accordance with the relevant regulations of the management of the grass field mowing operation, shall not overgraze, reclaim grassland, indiscriminately harvest wild plants, hunt, construct permanent buildings other than animal husbandry. 
+5. During the grassland leasing period, if the lessee wants to sub-lease the grassland, they must obtain a written consent from the lessor.
+6. When the grassland lease expires, return the leased grassland to the lessor in time or negotiate to continue the lease. The lessee enjoys the right of priority in renewing the lease as compare to other lessees under the same conditions.
+7. If the leased grassland is expropriated or occupied in whole or in part and the contract cannot be continued, the lessee shall be paid the lease fee for the whole or part of the grassland that cannot be used.
+8. The lessee enjoys the rights and obligations stipulated by laws and regulations.
 
 
 **IV, both parties are responsible for breach of contract**
