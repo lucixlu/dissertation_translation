@@ -13,12 +13,11 @@ ID number:
 Residence address:   
 Tel:   
 
-In order to regulate the grassland contract management rights transfer behavior, and safeguard the legitimate rights and interests of the parties involved in the transfer, according to the "The People's Republic of China Grassland Law", "Contract Law of the People's Republic of China", "Inner Mongolia Autonomous Region Grassland Management Regulations", "Inner Mongolia Autonomous Region Grassland Management Regulations Implementation Rules", "East Urumqi Grassland Contract Management Rights Transfer Management Measures" and other relevant laws and regulations, in the spirit of voluntary, equal, negotiated, paid, Party A is willing to lease the following grassland contract management rights to Party B. By mutual consensus, we hereby conclude this contract and jointly comply with its implementation.  
+In order to regulate the grassland contract management rights transfer behavior, and safeguard the legitimate rights and interests of the parties involved in the transfer, according to the "The People's Republic of China Grassland Law", "Contract Law of the People's Republic of China", "Inner Mongolia Autonomous Region Grassland Management Regulations", "Inner Mongolia Autonomous Region Grassland Management Regulations Implementation Rules", "East Urumqi Grassland Contract Management Rights Transfer Management Measures" and other relevant laws and regulations, in the spirit of voluntary, equal, negotiated, paid, the lessor is willing to lease the following grassland contract management rights to lessee. By mutual consensus, we hereby conclude this contract and jointly comply with its implementation.  
 
 **I. Basic information of leased pasture** 
 
-The leased pasture is located in ________________________________ sumu (town) __________________ gacha, pasture certificate registrant __________________, pasture certificate registration area _____________ mu, this lease area __________________________ mu, the suitable livestock carrying capacity is ______________ sheep unit.
-Specific location coordinates: __________________________________________________
+The leased rangeland is located in ________________________________ sumu (town) __________________ gacha. The rangeland certificate registrant is __________________. The rangeland owned by the registrant is _____________ mu, and the amount leased to the lessee is __________________________ mu. The livestock carrying capacity is ______________ sheep unit. The coordinates of this specific location is: __________________________________________________
 
 
 **II. Lease term, lease area, rent and payment method**
