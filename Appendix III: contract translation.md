@@ -8,12 +8,12 @@ Sumu (town):
 Gacha:   
 Tel: 
 
-lessee: _____________________________________________________ 
-ID number: ________________________________________________________ 
-Residence address: __________________________________________________________ Tel:__________________________________________________________
+lessee:   
+ID number:   
+Residence address:   
+Tel:   
 
-In order to regulate the grassland contract management rights transfer behavior, safeguard the legitimate rights and interests of the parties involved in the transfer, according to the "People's Republic of China Grassland Law", "Contract Law of the People's Republic of China", "Inner Mongolia Autonomous Region Grassland Management Regulations", "Inner Mongolia Autonomous Region Grassland Management Regulations Implementation Rules", "East Urumqi Grassland Contract Management Rights Transfer Management Measures" and other relevant laws and regulations, in the spirit of voluntary, equal, negotiated, paid Party A is willing to lease the following grassland contract management rights to Party B. By mutual consensus, we hereby conclude this contract and jointly comply with its implementation.
-
+In order to regulate the grassland contract management rights transfer behavior, and safeguard the legitimate rights and interests of the parties involved in the transfer, according to the "The People's Republic of China Grassland Law", "Contract Law of the People's Republic of China", "Inner Mongolia Autonomous Region Grassland Management Regulations", "Inner Mongolia Autonomous Region Grassland Management Regulations Implementation Rules", "East Urumqi Grassland Contract Management Rights Transfer Management Measures" and other relevant laws and regulations, in the spirit of voluntary, equal, negotiated, paid, Party A is willing to lease the following grassland contract management rights to Party B. By mutual consensus, we hereby conclude this contract and jointly comply with its implementation.  
 
 **I. Basic information of leased pasture** 
 
