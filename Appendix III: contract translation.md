@@ -3,10 +3,10 @@
 lessor:    
 ID number:   
 Residence address:  
-Address of the contract issuer: __________________ 
-Sumu (town): ________________________ 
-Gacha: ________________________ 
-Tel. __________________________________________________________
+Address of the contract issuer:  
+Sumu (town):   
+Gacha:   
+Tel: 
 
 lessee: _____________________________________________________ 
 ID number: ________________________________________________________ 
