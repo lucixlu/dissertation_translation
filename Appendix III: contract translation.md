@@ -55,7 +55,7 @@ When the contract cannot be performed due to force majeure factors, both parties
 If disputes over the boundaries of grass pastures occur within the leased grass pastures, Party A shall be responsible for coordinating and resolving them. In the process of contract implementation
 Other disputes shall be resolved through consultation on an equal footing, and if the consultation fails, we may apply for coordination and resolution with relevant departments, or we may apply for arbitration or file a lawsuit with the people's
 The court may also apply for arbitration or file a lawsuit.
-
+ 
 
 **VII. Other matters**
 1、Both parties negotiate to solve the utilization and management of the original infrastructure and new infrastructure of the transferred grassland. 
