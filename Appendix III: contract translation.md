@@ -57,27 +57,29 @@ When the contract cannot be performed due to force majeure events, both parties 
 
 
 **VI. Dispute Resolution**
-If disputes over the boundaries of grass pastures occur within the leased rangeland, the lessor shall be responsible for coordinating and resolving them. In the process of contract implementation, other disputes shall be resolved through consultation on an equal footing, and if the consultation fails, we may apply for coordination and resolution with relevant departments, or we may apply for arbitration or file a lawsuit with the people's
-The court may also apply for arbitration or file a lawsuit.
+
+
+If disputes over the boundaries of grass pastures occur within the leased rangeland, the lessor shall be responsible for coordinating and resolving them. In the process of contract implementation, other disputes shall be resolved through consultation of both the lessee and the lessor, and if the consultation fails, both must apply for coordination and resolution with relevant government departments, or may apply for arbitration or file a lawsuit with the court. 
  
 
 **VII. Other matters**
-1、Both parties negotiate to solve the utilization and management of the original infrastructure and new infrastructure of the transferred grassland. 
-2, this contract transfer of pastureland boundaries, area, grade and plot must be consistent with the grassland contract management rights certificate and grassland contract data and content listed. 
-3, this contract A B both legal representatives sign and seal, belong to the gacha committee (contracting party), sumu (town) grassland ecological protection law enforcement team review and seal, banner ecological protection bureau for the record after the effective.
+1. Both parties should negotiate to solve the utilization and management of the existing infrastructure and new infrastructure of the transferred grassland. 
+2. This contract transfer of pastureland boundaries, area, grading, and plot must be consistent with the grassland contract management rights certificate and grassland contract data and content listed. 
+3. This contract must be signed by the legal representatives of the lessor and lessee, as well as reviewed, sealed, and recorded by their gacha committee and sumu (town) grassland ecological protection law, and banner ecological protection bureau. 
 
 
 **VIII. attachment** 
-1, this contract in triplicate, one for each side, one for the record of the Flag Ecological Protection Bureau. 2, this contract is not exhausted by the A and B parties after consultation, can sign a supplementary contract. 3, a copy of the grassland tenure certificate, a copy of the ID cards of both parties A and B for the contract annex, attached to the contract.
+1. This contract is in triplicate, one for the lessor and lessee each, and one for the record of the Flag Ecological Protection Bureau.
+2. If there is additional matters, the lessor and lessee should sign a supplementary contract after negotiation. 
+3. A copy of the grassland tenure certificate, and a copy of the ID cards of both the lessor and lessee should be attached to the contract.
 
-Supplementary terms negotiated between 
-Party A and Party B: __________________________________________
+Supplementary terms negotiated between the lessor and lessee: __________________________________________
 ________________________________________________________________ 
 ________________________________________________________________ 
 Party A (Lessor) (signature) ___________________
 Party B (lessee) (signature) ___________________ 
-Gacha Committee opinion (seal) ____________________________________________ 
-Soum (town) ecological protection enforcement team audit opinion (signature) ____________________________ 
-East Urumqi Ecological Protection Bureau for the record (seal) ____________________
+Gacha Committee evaluation (seal) ____________________________________________ 
+Soum (town) ecological protection enforcement team evaluation (signature) ____________________________ 
+East Ujimqin Ecological Protection Bureau evaluation (seal) ____________________
 
 modeified based on DeepL auto translation www.DeepL.com/Translator 
